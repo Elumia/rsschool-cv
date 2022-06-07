@@ -7,4 +7,4 @@
 # Education
 ### Graduated from Grodno State Agrarian University. Specialty agronomist in plant protection.
 # English
-### A1 (in the process of studying)
+### A1 (in the process of studing)
